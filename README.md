@@ -1,1 +1,0 @@
-# Joyful-Smile-Dental
